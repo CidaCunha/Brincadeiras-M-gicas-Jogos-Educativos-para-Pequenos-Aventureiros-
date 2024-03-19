@@ -1,1 +1,1 @@
-# Brincadeiras-M-gicas-Jogos-Educativos-para-Pequenos-Aventureiros-
+# Brincadeiras-Magicas-Jogos-Educativos-para-Pequenos-Aventureiros-
